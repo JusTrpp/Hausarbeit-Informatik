@@ -3,6 +3,6 @@
 ## Einleitung
 
 ## Die ersten Computer bis 1945
-## hs
+
 ## Zusammenfasuung
 
